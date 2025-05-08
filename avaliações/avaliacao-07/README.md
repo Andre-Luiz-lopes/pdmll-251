@@ -1,1 +1,1 @@
-# Descriá∆o da Avaliaá∆o 07 
+# Avalia√ß√£o 07
