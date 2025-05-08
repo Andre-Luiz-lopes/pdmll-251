@@ -1,1 +1,1 @@
-# Descriá∆o da Avaliaá∆o 02 
+# Avalia√ß√£o 02
