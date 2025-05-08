@@ -1,1 +1,2 @@
-# Descriá∆o da Avaliaá∆o 06 
+# Avalia√ß√£o 06
+
